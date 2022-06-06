@@ -1,2 +1,0 @@
-# melanie-franklin
-personal site
